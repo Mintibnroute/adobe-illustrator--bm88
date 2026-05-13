@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Adobe Illustrator for macOS panel with Adobe Illustrator for macOS vip Panel: asset management & AI upscaling. Featuring asset management and AI upscaling, it's
 
 
 
